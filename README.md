@@ -1,4 +1,4 @@
-# Carolyn Stransky
+# Piush Aggarwal
 
 _Software engineer and journalist based in Berlin 🇩🇪_ <br>
 
